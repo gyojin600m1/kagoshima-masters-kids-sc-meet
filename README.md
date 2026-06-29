@@ -1,0 +1,1 @@
+# kagoshima-masters-kids-sc-meet
